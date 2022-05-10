@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GillysWrld
-- 👀 I’m interested in ... life
+- 👀 I’m interested in ... Web3, research, DAO's, NFT's, graphic design, video editing
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... gillyswrld@protonmail.com
